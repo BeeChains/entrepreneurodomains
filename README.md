@@ -1,6 +1,6 @@
 # Hello Cosmos!! 
 
-A podvig of mind focused on infinity. Foucus the mind towards infinity and abundance always... Tat Tvam Asi. That is This, This is That!!
+A podvig of mind focused on infinity. Foucus the mind towards infinity and abundance always... Tat-Tvam That means - (That is This, This is That) and Tat-Tvam-Asi means - (I Am That)
 
 Getting used the beauty of labor and deepening ones understanding of creative thought will ensure the conquer of darkness. Entrepreneuro domains is a podvig movement to Light.
 
